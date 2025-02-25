@@ -1,4 +1,4 @@
-# Gizmo Gurus, LLC
+# Gizmo Gurus LLC
 
 **From Dream to Design—We Bring Your Ideas to Life**
 
